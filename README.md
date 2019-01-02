@@ -1,0 +1,1 @@
+# TurkishKit-Ozel-Etkinligi-BK-Nakkastepe-Kampusu
