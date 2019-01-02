@@ -1,1 +1,1 @@
-# InstagramPost Başlangıç Projesi
+# Instagram Post Başlangıç Projesi
